@@ -6,4 +6,4 @@ We use our friendly voices & unique mannerisms to approach design, digital prese
 &nbsp;  
 &nbsp;  
 
-**We're building for tomorrow, today. Focussing on creating inclusive, fast and better web experiences for everybody.**
+**We're building for tomorrow, today. Focussing on creating more inclusive, faster and better web experiences for everybody.**
