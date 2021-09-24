@@ -1,4 +1,4 @@
-# Creative & interactive studio <img src="https://wp.assets.sh/uploads/sites/2963/2021/09/mrhenry-gezicht-small.png" alt="Mr. Henry's logo." width="90" height="90" align="right">
+# Creative & interactive studio
 
 We use our friendly voices & unique mannerisms to approach design, digital presence, internet, art direction & creative strategy.
 
